@@ -1,7 +1,7 @@
 # This Is Harry Uchiha
 
  ## Discord 
- [![Discord Presence](https://discord.c99.nl/widget/theme-2/333014456399560705.png)](https://discord.com/users/333014456399560705) 
+ [![Discord Presence](https://discord.c99.nl/widget/theme-2/333014456399560705.png)](https://discord.com/users/179702779659550720) 
 
  ## Here are my stats
  <br>
